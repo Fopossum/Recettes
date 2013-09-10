@@ -4,22 +4,22 @@ Cannelés en bouchées
 Matériel nécessaire
 -------------------
 
-Un grand saladier
-Des moules silicones
-Un fouet
-Une balance
-Un pinceau silicone
+*   Un grand saladier
+*   Des moules silicones
+*   Un fouet
+*   Une balance
+*   Un pinceau silicone
 
 Ingrédients
 -----------
 
-850g de lait
-4 jaunes d'oeufs + 2 oeufs entiers
-440g de sucre
-280g de farine
-r450g de beurre
-2 gousses de vanilles
-10 ml de Rhum agricole
+*   850g de lait
+*   4 jaunes d'oeufs + 2 oeufs entiers
+*   440g de sucre
+*   280g de farine
+*   40g de beurre
+*   2 gousses de vanille
+*   10 ml de Rhum agricole
 
 Préparation
 -----------
@@ -30,17 +30,22 @@ L'appareil est à réaliser 24 h avant la cuisson.
 Préparer tous les ingrédients.
 
 Verser le lait dans une casserole.
+
 Fendre les gousses de vanille et le mettre dans le lait.
+
 Mettre le lait à tiédir pour infuser la vanille.
 
 Dans un grand saladier, blanchir les oeufs (jaunes + entier) avec le sucre.
+
 Rajouter le Rhum et mélanger.
+
 Puis ajouter la farine et enfin le lait après en avoir retiré les gousses de vanille.
 
 Bien mélanger le tout.
+
 La pâte doit être lisse et onctueuse.
 
-Réserver au frais pendant 24h.
+Réserver au frais pendant 24 h.
 
 Cuisson
 -------
