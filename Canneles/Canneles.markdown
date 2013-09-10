@@ -15,7 +15,7 @@ Ingrédients
 
 *   850g de lait
 *   4 jaunes d'oeufs + 2 oeufs entiers
-*   440g de sucre
+*   440g de sucre en poudre
 *   280g de farine
 *   40g de beurre
 *   2 gousses de vanille
