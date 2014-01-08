@@ -53,7 +53,7 @@ Durée 50 m à 1 h 15 environ par fournée.
 
 Préchauffer le four à 175 °C
 
-Sortir la âte du frigo et la re-mélanger.
+Sortir la pâte du frigo et la re-mélanger.
 
 Graisser les moules à l'huile neutre
 
